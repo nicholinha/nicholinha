@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @
+- 👋 Hi, I’m Nicole Galvão, estudante do Alura
 
 - 👀 Meu contato é nicole.galvao@escola.pr.gov.
 
